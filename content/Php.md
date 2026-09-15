@@ -1,3 +1,7 @@
+---
+title: "**Forwarded from [Анатолий Фролов](https://t.me/AnatoluyFrolov)**"
+---
+
 **Forwarded from [Анатолий Фролов](https://t.me/AnatoluyFrolov)**
 
 #publish
